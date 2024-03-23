@@ -1,0 +1,1 @@
+# Majoy.github.io
